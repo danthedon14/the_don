@@ -1,4 +1,4 @@
 # the_don
-the man of the house your moms 
+the man of the house 
 
 brotherhood
